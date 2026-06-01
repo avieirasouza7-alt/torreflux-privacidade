@@ -40,5 +40,8 @@ Esta Política poderá ser atualizada periodicamente. As alterações entram em 
 
 Crimson Blink Games
 
-E-mail: seuemail@exemplo.com# torreflux-privacidade
-Política de Privacidade do jogo TorreFlux
+## Contato
+
+Crimson Blink Games
+
+E-mail: avieirasouza7@gmail.com
