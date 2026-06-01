@@ -36,9 +36,6 @@ São adotadas medidas razoáveis para proteger as informações processadas pelo
 
 Esta Política poderá ser atualizada periodicamente. As alterações entram em vigor após sua publicação.
 
-## Contato
-
-Crimson Blink Games
 
 ## Contato
 
